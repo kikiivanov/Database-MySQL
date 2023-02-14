@@ -17,7 +17,7 @@
 
 📫 How to reach me?
 
-ig: kristijanivanov_
+ig: https://www.instagram.com/kristijanivanov_/
 
 e-mail: ivanovkristiyan8@yahoo.com
 
